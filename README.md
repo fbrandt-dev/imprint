@@ -4,14 +4,13 @@ Impressum
 Angaben gemäß § 5 TMG
 
 Florian Brandt  
-Oedter Str. 7  
-47918 Tönisvorst  
+Hardter Waldstr. 6
+41169 Mönchengladbach
 
 **Vertreten durch:**  
 Florian Brandt  
 
 **Kontakt:**  
-Telefon: 02156-9149989
 Mobilfunk: 01579-2363666
 E-Mail: [florian@brandt.app](mailto:florian@brandt.app)  
 
