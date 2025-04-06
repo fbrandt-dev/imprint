@@ -4,7 +4,7 @@ Impressum
 Angaben gemäß § 5 TMG
 
 Florian Brandt  
-Hardter Waldstr. 6
+Hardter Waldstr. 6  
 41169 Mönchengladbach
 
 **Vertreten durch:**  
